@@ -9,7 +9,7 @@
 𝗠𝘆 𝗠𝗕𝗧𝗜 𝗶𝘀 𝗜𝗦𝗙𝗣-𝗧 (⑉･༥･⑉) 𝗠𝘆 𝗲𝘁𝗵𝗻𝗶𝗰𝗶𝘁𝘆 𝗶𝘀 𝗦𝗼𝘂𝘁𝗵𝗲𝗮𝘀𝘁 𝗔𝘀𝗶𝗮❟ 𝗜'𝗺 𝗙𝗶𝗹𝗶𝗽𝗶𝗻𝗼 / 𝗙𝗶𝗹𝗶𝗽𝗶𝗻𝗮 !!
 𝗜 𝗹𝗼𝘃𝗲𝗹𝗼𝘃𝗲𝗹𝗼𝘃𝗲 𝘁𝗮𝗸𝗶𝗻𝗴 𝗽𝗶𝗰𝘁𝘂𝗿𝗲𝘀 𝗼𝗳 𝗺𝘆𝘀𝗲𝗹𝗳! 𝗜 𝘄𝗼𝘂𝗹𝗱 𝗽𝗼𝘀𝘁 𝘁𝗵𝗲𝗺 𝙖𝙣𝙮𝙬𝙝𝙚𝙧𝙚 ( `⎚⩊⎚´ ) !
 
-https://github.com/user-attachments/assets/2e39f816-4efb-43c7-a9a5-1c7702efda4c
+<img width="720" height="1093" alt="Image" src="https://github.com/user-attachments/assets/3cc54c48-920c-43e5-bb82-6fdbf7cb28a0" />
 
 Ｎｏｔｅ :: 𝗜'𝗺 𝘀𝘁𝗶𝗹𝗹 𝗮 𝗺𝗶𝗻𝗼𝗿❟ 𝘀𝗼 𝗽𝗹𝗲𝗮𝘀𝗲 𝘀𝘁𝗮𝘆 𝘀𝗲𝗻𝘀𝗶𝗯𝗹𝘆 𝗮𝗿𝗼𝘂𝗻𝗱 𝗺𝗲!
 
