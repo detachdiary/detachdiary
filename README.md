@@ -1,1 +1,1 @@
-! [image alt](https://github.com/detachdiary/SillyAdi/blob/64435dd24486102da845c3c32f64d5b9d82b059e/README.md)
+<img width="370" height="320" alt="Image" src="https://github.com/user-attachments/assets/c28fb3b8-9568-49f0-a4c5-a123fe2f044e" />
