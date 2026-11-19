@@ -8,3 +8,11 @@
 
 
 <img width="370" height="320" alt="Untitled367_20261119205849" src="https://github.com/user-attachments/assets/19c3f3c8-0460-47e6-88c2-c384635aad0c" />
+
+
+
+<img width="370" height="320" alt="Untitled371_20261119215904" src="https://github.com/user-attachments/assets/08be7df5-5778-45ad-8191-1fcfad4653b0" />
+
+
+
+<img width="519" height="691" alt="Screenshot_20261119-214329_1" src="https://github.com/user-attachments/assets/3e8ecadd-9b0d-483b-b63f-4f1c502b62ff" />
